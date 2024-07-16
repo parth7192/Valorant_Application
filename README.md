@@ -15,7 +15,7 @@ If you're interested in discussing my application further or arranging a trial g
 
 Thank you for considering my application. I look forward to the opportunity to contribute to the team's success!
 
-## ♠️ Screenshots 📷:
+## ♠️ Video 📷:
 
 https://github.com/parth7192/valorant_application/assets/142138451/d3805a4a-2a10-41f7-9afc-93275a182bb7
 
